@@ -4,7 +4,7 @@ Hey there, I'm Emmanuel a Software Developer from Canada 🇨🇦
 
 Find me on LinkedIn ➡️ [https://www.linkedin.com/in/emmanuel-audu-826051163/](https://www.linkedin.com/in/emmanuel-audu-826051163/)
 
-<img height="300px" width="100%" src="https://images.pling.com/img/00/00/33/91/33/1151249/7daa466a816f5bd0f93b11cb5195eeeddbd7.jpg"/>
+<img src="https://media-exp1.licdn.com/dms/image/C4D16AQF4UQpsJ_2vdQ/profile-displaybackgroundimage-shrink_350_1400/0/1623272611188?e=2147483647&v=beta&t=JlNK3nuHS95IxBuB0qpQqdGZ6J6P8wmcBWvnkvOLXxc"/>
 
 ---
 
