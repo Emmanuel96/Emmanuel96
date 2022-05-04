@@ -20,7 +20,6 @@ Find me on LinkedIn ➡️ [https://www.linkedin.com/in/emmanuel-audu-826051163/
 ![https://cdn-icons-png.flaticon.com/24/5968/5968350.png](https://cdn-icons-png.flaticon.com/24/5968/5968350.png)
 ![https://cdn-icons-png.flaticon.com/24/6132/6132222.png](https://cdn-icons-png.flaticon.com/24/6132/6132222.png)
 ![https://cdn-icons-png.flaticon.com/24/5968/5968705.png](https://cdn-icons-png.flaticon.com/24/5968/5968705.png)
-![https://cdn-icons-png.flaticon.com/24/5968/5968520.png](https://cdn-icons-png.flaticon.com/24/5968/5968520.png)
 ![https://cdn-icons-png.flaticon.com/24/5968/5968559.png](https://cdn-icons-png.flaticon.com/24/5968/5968559.png)
 
 
